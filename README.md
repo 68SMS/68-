@@ -37,5 +37,5 @@
 
 平台地址：https://www.68sms.com
 客服Telegram： @sms_68service1
-	            @sms_68service2
+	      @sms_68service2
 现在就加入我们的接码平台，拥有自己的虚拟手机号码。安全、可靠、便捷，我们为您提供最好的接码体验！
